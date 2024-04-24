@@ -1,0 +1,1 @@
+# mimintukimin.github.io
